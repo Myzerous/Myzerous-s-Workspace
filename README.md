@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Myzerous
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Python, HTML, Java, and Java Script
+- 💞️ I’m looking to collaborate on games, and simple projects... Not accepting paid commission atm, as im still learning how to code!
+- 📫 How to reach me Twitter linked to my profile, or my discord Myz#0999
